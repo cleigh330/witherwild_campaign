@@ -1,0 +1,16 @@
+---
+{"dg-publish":true,"permalink":"/p-cs/koraxys/"}
+---
+
+![Pasted image 20250823233042.jpg](/img/user/_Assets/Pasted%20image%2020250823233042.jpg)
+Koraxys Kelador’s life as a Highborne from [[Haven Cities & Towns/Haven\|Haven]] is a complicated one since birth. She was a product of infidelity. Her family made and sold weapons for the [[World Information/Haven Army\|Haven Army]], and business boomed when they infiltrated Fanewick. The trade brought many merchants to [[Haven Cities & Towns/Kelador Keep\|Kelador Keep]], and during the height of this, Koraxys’s Infernis mother had an affair with a Fungril merchant, which resulted in the birth of the Infernis-Fungril, Koraxys. Her features are predominately of an androgynous Infernis, bright red, long nails, and a tail, but her horns are more like the caps of mushrooms, speckled white on red, framing her white hair.
+
+The Kelador family found their wealth making and selling weapons for the Haven Army during their infiltration of Fanewick. Their immediate competition was the Blackwood family, which specialized in enchanted weaponry and more elusive, shady dealings. Life as a family dealing in trade of sorts, led to many merchants in and out of [[Haven Cities & Towns/Kelador Keep\|Kelador Keep]]. A certain Fungril, NAME, had ended up having a brief affair with NAME, resulting in the birth of Koraxys. Luckily, her features were predominately Infernis, but this didn’t stop NAME from looking down on her. 
+
+However, with Fungril roots, she had an innate ability to cast magic and a worrisome connection to death that she did not understand or want to accept. When her brother, NAME, became afflicted with the Serpent’s Sickness, Koraxys tried to save him using her magic and herbs. She even turned to various flowers and snake skin like many in Haven attempted, but it was no use. The Sickness took hold fully, turning BRO NAME to stone, and Koraxys blamed herself. While her mother tried to be kind in the face of immense grief, her father did not hold such empathy. Upset that his true-born son passed, he forbade Koraxys from practicing magic and exploring wonders of the natural world. One day, she even heard him sharing with MOTHER NAME that he planned on cutting her off from the family wealth.
+
+Unwilling to be stuck in a home of misery and restricted from what emanated inside of her, Koraxys took some heirlooms and set out to live in Fanewick where she could find a Fungril to help her learn more about her magic and use it properly.
+
+Once in the [[Fanewick Cities & Towns/Stolen Fen\|Stolen Fen]], she encountered [[PCs/Ashkansi\|Ashkansi]], a rogue that was sent to end her life. Through some persuasive conversation and a chunk of gold, Ash agreed to spare her. Reluctantly, they stayed together in the Stolen Fen for the time being. When they both received a letter from [[Kriel Dirn\|Kriel Dirn]], they ventured out together on their adventure. 
+
+Through her travels, Koraxys battles with an internal struggle of who she is and the powers she holds. It is up to her to either grow her confidence and skills to learn who she can be or cower amidst the unknown.

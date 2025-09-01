@@ -1,0 +1,18 @@
+---
+{"dg-publish":true,"permalink":"/p-cs/rizzha/"}
+---
+
+![Pasted image 20250828140056.png](/img/user/_Assets/Pasted%20image%2020250828140056.png)
+Rizzha Emberhold grew up in a life of the outdoors in her Wildborne community. Like all giants, she was born with no eyes, but as she grew, she developed two eyes and a third in the back of her neck. She covers this third eye with her hair, but she uncovers it when she is hunting or in battle. The lack on constraints out in nature, being able to fully extend her height, made her feel beyond free, and it allowed her to develop her skills as a ranger.
+
+However, life out in Fanewick wasn’t always easy. When the [[World Information/Haven Army\|Haven Army]] invaded, things changed. The Witherwild took hold of the land, and trekking through the woods became far more hazardous. One of her close friends, NAME, died hunting in the [[Fanewick Cities & Towns/Riverwalker’s Hunting Ground\|Riverwalker’s Hunting Ground]], and she took his companion for her own, a tiger down named Briar.
+
+![Pasted image 20250828140149.png](/img/user/_Assets/Pasted%20image%2020250828140149.png)
+
+With life in the woods and plains of Fanewick growing more difficult, her group crept closer and closer to the border of [[Haven Cities & Towns/Haven\|Haven]], but eventually, Haven started setting fires along the edges, creating the [[Fanewick Cities & Towns/Carnivorous Divide\|Carnivorous Divide]] between the two regions. These reoccurring fires, forced Rizzha and her community out of the area and into Haven. Once there, she was forced to work in the Haven fields as a farmer. Even amongst the thousands of flowers, she was incredibly skilled at finding Lady’s Veil, the cure for the Serpent’s Sickness. What no one knew was that she carried a compass that aided her. While this compass appeared broken to anyone else, it showed her exactly the direction of the closest Lady’s Veil.
+
+A life harvesting flowers for those who cared little for her people, however, was not a life she wanted. One day when she was out in the fields, a small elven-faerie crossed her path heading out of Haven. Finding it a bit odd, seeing this faerie appeared well-off, she asked where she was headed. Striking up conversation, she learned [[PCs/Willow\|Willow]] was fleeing to Fanewick in hopes of finding a cure for the Serpent’s Sickness. Knowing that she had this ability to scout and easily find Lady’s Veil, Rizzha thought perhaps she could help. When the guards attention was elsewhere, the two snuck past the Carnivorous Divide and into Fanewick. However, Haven was not happy to see one of their top farmers leave the fields, and they would seek for her to return.
+
+They stayed at [[Fanewick Cities & Towns/Qavvik’s Tower\|Qavvik’s Tower]] for a time, using the research-designated building and storefronts in hopes of progress. Rizzha had to be careful though because this lifted city above the fields was still peripherally Haven’s. A day came when a cloaked figure found Willow and Rizzha in Qavvik’s Tower. He delivered a letter to each of them from [[Kriel Dirn\|Kriel Dirn]]. Claiming he could help them in their quest to find a cure, they agreed to go see the Spymaster and accepted his job to find the Fanewraith.
+
+On her journey, Rizzha is trying to find her place in this world and grow from past hardships. With her new friend Willow’s help, she aims to find a way to cure the Serpent’s Sickness and also save those in danger from the Witherwild. 
