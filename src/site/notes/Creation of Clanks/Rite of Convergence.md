@@ -15,4 +15,6 @@ When the magic grows to a sufficient level and takes hold in the gemstone, the c
 
 ![IMG_0771.webp](/img/user/_Assets/IMG_0771.webp)
 
+---
+
 A consciousness is awakened in the clank “born” by the Rite, but it is not the same understanding as a “soul.” Instead, this consciousness is a patchwork constructed from the magical weave. It is said that the clanks even have a sense of the experiences from the Weavers involved in the process, adding to the clank’s “essence.” In some cases, Weavers or Artificers may choose to imbue the clank with certain traits or memories in order to impart their own personal philosophies onto the clank. In this way, they are more malleable than those born of the Consecration and more susceptible to the corruption of man. When clanks are given this type of added consciousness, they may “remember” their Weaver’s  ideals, feelings, or memories, but these are not fully realized as their own and may manifest in strange ways.
