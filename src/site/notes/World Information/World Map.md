@@ -24,7 +24,7 @@
 ## Haven
 - [[Haven Cities & Towns/Castle Blackwood\|Castle Blackwood]]: empty; possibly lootable; trade routes have been shut down due to Willow no longer running her late family’s operations
 - [[Haven Cities & Towns/Kelador Keep\|Kelador Keep]]: Koraxys wants to avoid this area
-- [[Haven Cities & Towns/Haven\|Haven]]: enclosed by the Ophid’s skeleton, plagued by the Serpent’s Sickness - which has caused many of the citizens to become statues in the streets;  the once bustling city was filled with inns, taverns, merchant square, shops, wizardry school, military center, libraries, and council chambers of the Archmage Phylax (Drakona), [[Notable Figures/Emissary Trezan\|Emissary Trezan]] (Infernis), [[Notable Figures/Warlord Vaurn\|Warlord Vaurn]] (Dwarf), [[Notable Figures/Emperor Niclis Ilineiros\|Emperor Niclis Ilineiros]] (Half-Elf)
+- [[Haven Cities & Towns/Haven\|Haven]]: enclosed by the Ophid’s skeleton, plagued by the Serpent’s Sickness - which has caused many of the citizens to become statues in the streets;  the once bustling city was filled with inns, taverns, merchant square, shops, wizardry school, military center, libraries, and council chambers of the Archmage Phylax (Drakona), [[Notable Figures/Haven NPCs/Emissary Trezan\|Emissary Trezan]] (Infernis), [[Notable Figures/Haven NPCs/Warlord Vaurn\|Warlord Vaurn]] (Dwarf), [[Notable Figures/Haven NPCs/Emperor Niclis Ilineiros\|Emperor Niclis Ilineiros]] (Half-Elf)
 - [[Haven Cities & Towns/Fire Falls\|Fire Falls]]: Runoff from Haven
 - [[Haven Cities & Towns/Isle of the Twelve\|Isle of the Twelve]]: 
 - [[Haven Cities & Towns/Seagloam\|Seagloam]]: Port town to Haven
