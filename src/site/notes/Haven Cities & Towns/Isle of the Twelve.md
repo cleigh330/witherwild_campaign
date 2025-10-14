@@ -4,7 +4,7 @@
 
 
 
-The Isle of the Twelve though in Haven bounds used to be roamed freely by Wicklings centuries ago. Since Haven invaded Fanewick, Wicklings have left the coast and five islands vacant. Rumor is that during the weeks of night, citizens of Seagloam make the trek in secret to the coast of the Isle that revered the gods.
+The Isle of the Twelve though in [[Haven Cities & Towns/Haven\|Haven]] bounds used to be roamed freely by Wicklings centuries ago. Since Haven invaded Fanewick, Wicklings have left the coast and five islands vacant. Rumor is that during the weeks of night, citizens of Seagloam make the trek in secret to the coast of the Isle that revered the gods.
 
 ![IMG_0790.webp](/img/user/_Assets/IMG_0790.webp)
 
