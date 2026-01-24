@@ -3,7 +3,7 @@
 ---
 
 
-The Cult of the Carrion Saint is an emerging faith born in the wake of [[Gods & Faint Deities/Great Owl Nikta\|Great Owl Nikta]]’s Reaping Eye being stolen. Since the emergence of the Withwild, individuals scattered across Fanewick began to receive haunting visions: a foundling god of unraveling flesh into sacred decay and carrion birds heralding a new order. Though each vision was slightly varied, they shared a single revelation: the ichor that seeps from withered beings is divine, and it feed something vast and growing beneath the surface — a Faint Deity gestating into goodhood.
+The Cult of the Carrion Saint is an emerging faith born in the wake of [[Gods & Faint Deities/Great Owl Nikta\|Great Owl Nikta]]’s Reaping Eye being stolen. Since the emergence of the Witherwild, individuals scattered across Fanewick began to receive haunting visions: a foundling god of unraveling flesh into sacred decay and carrion birds heralding a new order. Though each vision was slightly varied, they shared a single revelation: the ichor that seeps from withered beings is divine, and it feeds something vast and growing beneath the surface — a Faint Deity gestating into goodhood.
 
 ![Pasted image 20251006140706.jpg](/img/user/_Assets/Pasted%20image%2020251006140706.jpg)
 
