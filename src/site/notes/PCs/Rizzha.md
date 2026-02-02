@@ -5,7 +5,7 @@
 ![Pasted image 20250828140056.png](/img/user/_Assets/Pasted%20image%2020250828140056.png)
 Rizzha Emberhold grew up in a life of the outdoors in her Wildborne community. Like all giants, she was born with no eyes, but as she grew, she developed two eyes and a third in the back of her neck. She covers this third eye with her hair, but she uncovers it when she is hunting or in battle. The lack on constraints out in nature, being able to fully extend her height, made her feel beyond free, and it allowed her to develop her skills as a ranger.
 
-However, life out in Fanewick wasn’t always easy. When the [[World Information/Haven Army\|Haven Army]] invaded, things changed. The Witherwild took hold of the land, and trekking through the woods became far more hazardous. One of her close friends, NAME, died hunting in the [[Fanewick Cities & Towns/Riverwalker’s Hunting Ground\|Riverwalker’s Hunting Ground]], and she took his companion for her own, a tiger down named Briar.
+However, life out in Fanewick wasn’t always easy. When the [[World Information/Haven Army\|Haven Army]] invaded, things changed. The Witherwild took hold of the land, and trekking through the woods became far more hazardous. One of her close friends, Tyful, died hunting in the [[Fanewick Cities & Towns/Riverwalker’s Hunting Ground\|Riverwalker’s Hunting Ground]], and she took his companion for her own, a tiger down named Briar.
 
 ![Pasted image 20250828140149.png](/img/user/_Assets/Pasted%20image%2020250828140149.png)
 
