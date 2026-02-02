@@ -22,6 +22,6 @@ Those who do not have a means to fly or druid craft vines can access to treetops
 
 **Canopy Clinic**: A healing hall tended by herbalists and druids. The air smells of herbs and damp moss.
 
-**Nightbloom Mission**: A temple dedicated to Oove, though other deities can be worshiped there. [[Brennok\|Brennok]], a Fungril, is the one who runs this temple.
+**Moonveil**: A temple dedicated to Oove, though other deities can be worshiped there. [[Brennok\|Brennok]], a Fungril, is the one who runs this temple.
 
 **The Verdant Spire**: A hopeful name that is the house to where the Fanewraith conducts business. Inside, it is not a traditional office. The main area looks like a simple bar, and aside from a bookcase and documents along the opposite wall, one may not even realize this is a place of Fanewraith business. In the back of the building is Cirelle’s living and sleeping quarters.
