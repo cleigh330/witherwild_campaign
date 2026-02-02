@@ -3,7 +3,7 @@
 ---
 
 
-The Reapers of Nikta are a somber, disciplined network of ideologues and warriors who serve the balance once kept by Nikta’s Reaping Eye. Some older members also regard [[Gods & Faint Deities/Shun’Aush the Granite Ophid\|Shun’Aush the Granite Ophid]] as a god of balance and do not agree with his death by the Havenites.
+The Reapers of Nikta are a somber, disciplined network of ideologues and warriors who serve the balance once kept by Nikta’s Reaping Eye. Some older members also regard [[Faint Deities/Shun’Aush the Granite Ophid\|Shun’Aush the Granite Ophid]] as a god of balance and do not agree with his death by the Havenites.
 
 While they do not worship Nikta in a traditional religious sense, they recognize the profound necessity of her role. With the natural cycle of seasons and death disrupted, the Reapers believe the world has tipped too far toward unchecked growth and unnatural survival. In response, they have taken it upon themselves to restore equilibrium by becoming death’s stewards.
 ![Pasted image 20251006120043.jpg](/img/user/_Assets/Pasted%20image%2020251006120043.jpg)

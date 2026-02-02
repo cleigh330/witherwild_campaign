@@ -3,7 +3,7 @@
 ---
 
 
-Haven was once the most powerful force in the region; for centuries, the high stone walls into the capital bore the phrase “The Godless Gate.” While the original meaning has been lost to common knowledge, some dusty tomes and ancient records state that the founders of Haven wished to be free of the influence of the Faint Divinities that dominated the surrounding regions. They made their home behind [[Gods & Faint Deities/Shun’Aush the Granite Ophid\|Shun’Aush the Granite Ophid]] remains, which became the mighty walls that Haven is known for.
+Haven was once the most powerful force in the region; for centuries, the high stone walls into the capital bore the phrase “The Godless Gate.” While the original meaning has been lost to common knowledge, some dusty tomes and ancient records state that the founders of Haven wished to be free of the influence of the Faint Divinities that dominated the surrounding regions. They made their home behind [[Faint Deities/Shun’Aush the Granite Ophid\|Shun’Aush the Granite Ophid]] remains, which became the mighty walls that Haven is known for.
 
 Over the last two years, over half of Haven’s populace fell to a disease known as the Serpent’s Sickeness, filing Haven with statues of victims in their last moments of agony.
 

@@ -26,9 +26,9 @@ Gods in this land aren’t ethereal concepts that exist in another realm; instea
 
 Fanewick’s various divinities each have their own opinion concerning the Witherwild corruption. While some enjoy nature’s newfound dominance, many of the lesser deities are wary of how out of balance Fanewick has become.
 
-- [[Gods & Faint Deities/Fulg\|Fulg]], Stacker of Stones
-- [[Gods & Faint Deities/Hyacynis\|Hyacynis]], They Who Spread Small Blossoms
-- [[Gods & Faint Deities/Ikla\|Ikla]], the Sky Painter
-- [[Gods & Faint Deities/Oove\|Oove]], the Watcher of the Night Bloom
-- [[Gods & Faint Deities/Qui’Gar\|Qui’Gar]], Whispered Sweetness for a Thorny End
-- [[Gods & Faint Deities/Rohkin\|Rohkin]], the Wandering Horn
+- [[Faint Deities/Fulg\|Fulg]], Stacker of Stones
+- [[Faint Deities/Hyacynis\|Hyacynis]], They Who Spread Small Blossoms
+- [[Faint Deities/Ikla\|Ikla]], the Sky Painter
+- [[Faint Deities/Oove\|Oove]], the Watcher of the Night Bloom
+- [[Faint Deities/Qui’Gar\|Qui’Gar]], Whispered Sweetness for a Thorny End
+- [[Faint Deities/Rohkin\|Rohkin]], the Wandering Horn

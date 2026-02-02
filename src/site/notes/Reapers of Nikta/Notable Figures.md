@@ -12,5 +12,5 @@ Casimir is the face of the Reapers but operates in the shadows of [[Haven Cities
 This halfling ranger is Casimir’s right hand and acts as captain when sending out cells of Reapers. Deft at navigating the [[Fanewick Cities & Towns/Carnivorous Divide\|Carnivorous Divide]], Balor uses his skills to sabotage Haven forces that get in their way.
 
 ## Istra Vale
-Istra is a Fungril that is unnervingly serene. She believes that she knows what targets should have been culled naturally, receiving supposed visions of [[Gods & Faint Deities/Great Owl Nikta\|Great Owl Nikta]]’s judgement, so she travels between cells throughout Fanewick and Haven bringing rightful ends where needed. Istra believes that Havenites deserve the Serpent’s Sickness for paving over death and seeking expansion, denying entropy.
+Istra is a Fungril that is unnervingly serene. She believes that she knows what targets should have been culled naturally, receiving supposed visions of [[Faint Deities/Great Owl Nikta\|Great Owl Nikta]]’s judgement, so she travels between cells throughout Fanewick and Haven bringing rightful ends where needed. Istra believes that Havenites deserve the Serpent’s Sickness for paving over death and seeking expansion, denying entropy.
 ![Pasted image 20251006131611.jpg](/img/user/_Assets/Pasted%20image%2020251006131611.jpg)
