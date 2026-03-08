@@ -7,7 +7,7 @@
 Father Carrask is a soft-spoken giant who eagerly finds sympathetic souls to teach about their Saint Carrion. He is the outward face of the Cult and uses his welcoming presence to make the organization appealing to outsiders. Once new members go through the Rite of Dreams with Sister Vorona, his demeanor shifts to one of a strict zealot that demands orders be followed to bring forth the awakening of their Saint.
 
 ## Sister Vorona
-Though not the main face of the Cult, Sister Vorona is the de facto leader alongside Father Carrask. Deep in Fanewick in the [[Fanewick Cities & Towns/Unsleeping Woods\|Unsleeping Woods]], Sister Vorona runs the Rite of Dreams, leading new members through their fever dreams to find the Carrion Saint. This human woman is clad in tattered robes and stitched shrouds from withered victims. It is believed that she speaks directly to the Saint and Mother. Vorona gives off an air of stern and crazed quietness.
+Though not the main face of the Cult, Sister Vorona is the de facto leader alongside Father Carrask. Deep in Fanewick in the [[Fanewick Cities & Towns/Cackling Moor\|Cackling Moor]], Sister Vorona runs the Rite of Dreams, leading new members through their fever dreams to find the Carrion Saint. This human woman is clad in tattered robes and stitched shrouds from withered victims. It is believed that she speaks directly to the Saint and Mother. Vorona gives off an air of stern and crazed quietness.
 
 ![IMG_0792.jpeg](/img/user/_Assets/IMG_0792.jpeg)
 
