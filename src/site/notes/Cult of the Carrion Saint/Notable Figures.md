@@ -12,7 +12,7 @@ Though not the main face of the Cult, Sister Vorona is the de facto leader along
 ![IMG_0792.jpeg](/img/user/_Assets/IMG_0792.jpeg)
 
 ## Raskil the Hollow
-Raskil, an Infernis with periwinkle skin and light lavender eyes, is a zealot feared among even believers. He is covered in scars, some of which may be self-inflicted. Raskil believes true devotion requires one to be emptied of all that is not the Saint. Being taken by the withered and reborn should be viewed as an honor, not feared, and he is one who leads followers in dangerous and visceral rituals. He is proud to bring others to Mother for truly frightening biological experiments.
+Raskil, an Infernis with periwinkle blue skin and light lavender eyes, is a zealot feared among even believers. He is covered in scars, some of which may be self-inflicted. Raskil believes true devotion requires one to be emptied of all that is not the Saint. Being taken by the withered and reborn should be viewed as an honor, not feared, and he is one who leads followers in dangerous and visceral rituals. He is proud to bring others to Mother for truly frightening biological experiments.
 
 
 ![Pasted image 20251006150957.jpg](/img/user/_Assets/Pasted%20image%2020251006150957.jpg)
