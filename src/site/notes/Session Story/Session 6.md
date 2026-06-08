@@ -1,0 +1,20 @@
+---
+{"dg-publish":true,"permalink":"/session-story/session-6/"}
+---
+
+
+The group met up with [[Cirelle\|Cirelle]] at [[Fanewick Cities & Towns/God’s Nest\|God’s Nest]], but instead of confronting the [[Faint Deities/Great Owl Nikta\|Great Owl Nikta]] then and there, Cirelle told them that Nikta was not there. Based on all the reports that had come in from her scouts as of late, she determined the next place to look would be the [[Fanewick Cities & Towns/Celestial Gateway\|Celestial Gateway]]. She offered to search ahead so the group could rest. They told her they actually had to go to [[Fanewick Cities & Towns/Cordycep Cove\|Cordycep Cove]] to pick up a package, which was the unknown parcel [[PCs/Ashkansi\|Ashkansi]] was retrieving for the black market dealer, Drezza, in [[Haven Cities & Towns/Beacon Pass\|Beacon Pass]]. Uncomfortable with the prospect of the group traveling through the [[Fanewick Cities & Towns/Cackling Moor\|Cackling Moor]] due to the presence of the Cult of the Carrion Saint ([[Cult of the Carrion Saint/Cult Overview\|Cult Overview]]), Cirelle told them she would wait only up to five days for their return. If they were not back, she would find them.
+
+As they were walking through the forest, [[PCs/Orielle\|Orielle]] stepped on a flower that released a noxious gas that caused everyone to lose consciousness.
+
+One by one, they each woke up in a strange place. They were in a tent of some sort on cots with needles in their arms that were feeding them a liquid that was a similar color to the gas that put them to sleep. [[PCs/Caelum\|Caelum]], however, was not hooked up to anything. Some in the group, [[PCs/Koraxys\|Koraxys]] in particular, saw the visions of the Carrion Saint. 
+
+Sister Verona met them as they woke. She asked if anyone saw their Saint in the dreams, but when Orielle asserted they were leaving and not divulging in the visions, Sister Verona told them they are not prisoners. Before they left, she wanted to give them a chance to see their camp and meet their leader. 
+
+While she led them to the leader, Ashkansi snuck away and headed toward a cave entrance. There was an Infernis at the beginning of cave, and others in the cult were obviously keeping their distance. Ash sneakily entered the cave and managed to remain unseen through all of it up until nearly approaching the area where Mother stayed. Raskil, the Infernis, ended up finding her and telling her that it was not her time to see Mother. He led her out of the cave back to her group that were readying to leave.
+
+During Ashkansi’s escapade, the group was brought before Father Carrask, a giant. He echoed what Sister Verona insisted about none of them being prisoners, but when the group went to depart, they noticed many of the cultist guards were eyeing them. Through swift maneuvers through the woods, they managed to escape those following them for the time being and reached [[Fanewick Cities & Towns/Cordycep Cove\|Cordycep Cove]]. 
+
+Unlike the cultists, the Fungril were more pleasant though a touch suspicious as to how a group of outsiders made it all the way there through the Witherwild. With some sleuthing and questioning around the shops, Ashkansi found the Fungril she was looking for that went by the name of Zerrin, though not publicly. Zerrin handed Ashkansi the locked box she was set to deliver to Drezza. 
+
+Before leaving, Koraxys also asked about the location of Aradon’s house, a Fungril that was often sent out on deliveries and trade but had been said to have not returned in some time. They found the home that Zerrin mentioned and found the house tossed. It could have been a mess left in a hurry, but it also felt rummaged through. Taking some time to search, Koraxys found a letter, and just before she opened it and began to read, the rest of her group wandered in to the abandoned home of Aradon.
