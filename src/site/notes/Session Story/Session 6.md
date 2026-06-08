@@ -5,6 +5,8 @@
 
 The group met up with [[Cirelle\|Cirelle]] at [[Fanewick Cities & Towns/God’s Nest\|God’s Nest]], but instead of confronting the [[Faint Deities/Great Owl Nikta\|Great Owl Nikta]] then and there, Cirelle told them that Nikta was not there. Based on all the reports that had come in from her scouts as of late, she determined the next place to look would be the [[Fanewick Cities & Towns/Celestial Gateway\|Celestial Gateway]]. She offered to search ahead so the group could rest. They told her they actually had to go to [[Fanewick Cities & Towns/Cordycep Cove\|Cordycep Cove]] to pick up a package, which was the unknown parcel [[PCs/Ashkansi\|Ashkansi]] was retrieving for the black market dealer, Drezza, in [[Haven Cities & Towns/Beacon Pass\|Beacon Pass]]. Uncomfortable with the prospect of the group traveling through the [[Fanewick Cities & Towns/Cackling Moor\|Cackling Moor]] due to the presence of the Cult of the Carrion Saint ([[Cult of the Carrion Saint/Cult Overview\|Cult Overview]]), Cirelle told them she would wait only up to five days for their return. If they were not back, she would find them.
 
+![IMG_0822.jpeg](/img/user/_Assets/IMG_0822.jpeg)
+
 As they were walking through the forest, [[PCs/Orielle\|Orielle]] stepped on a flower that released a noxious gas that caused everyone to lose consciousness.
 
 One by one, they each woke up in a strange place. They were in a tent of some sort on cots with needles in their arms that were feeding them a liquid that was a similar color to the gas that put them to sleep. [[PCs/Caelum\|Caelum]], however, was not hooked up to anything. Some in the group, [[PCs/Koraxys\|Koraxys]] in particular, saw the visions of the Carrion Saint. 
