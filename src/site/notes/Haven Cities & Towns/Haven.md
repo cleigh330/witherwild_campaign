@@ -10,7 +10,7 @@ Over the last two years, over half of Haven’s populace fell to a disease known
 ## Layout
 The city is divided into three tiers. Entering the city, to the right and left are numerous taverns and inns for travelers. Behind these businesses are the homes of many of the lower class. Into the second tier, there are middle class homes, taverns, shops, and an open air market. Beyond this in the third tier is the opulent district where many of the governance buildings reside and those who hold great wealth. Center stage is the Council Hall, and on either side and wrapping around the Council Hall is the College of War Wizards School and the Haven Army Headquarters. This area holds the most green space in the city and is extraordinarily well maintained.
 
-**The Crooked Bell**: An old tavern that is topped with a small bell tower that is slightly leaning. Locals believe that it tolls whenever the Serpent’s Sickness takes another. This is where the adventuring group encountered Talia in [[Session Story/Session 1\|Session 1]]. She pretended to be drunk in an attempt to gather information for the Fanewraith, [[_Assets/Cirelle\|Cirelle]], but failed.
+**The Crooked Bell**: An old tavern that is topped with a small bell tower that is slightly leaning. Locals believe that it tolls whenever the Serpent’s Sickness takes another. This is where the adventuring group encountered Talia in [[Session Story/Session 1 - A Party Gathers\|Session 1 - A Party Gathers]]. She pretended to be drunk in an attempt to gather information for the Fanewraith, [[_Assets/Cirelle\|Cirelle]], but failed.
 
 **The Raven’s Hearth**: A quiet inn found in the second tier of the city where the fire never seems to die. Rooms are plain but it’s safe.
 
