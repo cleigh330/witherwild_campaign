@@ -11,6 +11,6 @@ However, with Fungril roots, she had an innate ability to cast magic and a worri
 
 Unwilling to be stuck in a home of misery and restricted from what emanated inside of her, Koraxys took some heirlooms and set out to live in Fanewick where she could find a Fungril to help her learn more about her magic and use it properly.
 
-Once in the [[Fanewick Cities & Towns/Stolen Fen\|Stolen Fen]], she encountered [[PCs/Ashkansi\|Ashkansi]], a rogue that was sent to end her life. Through some persuasive conversation and a chunk of gold, Ash agreed to spare her. Reluctantly, they stayed together in the Stolen Fen for the time being. When they both received a letter from [[Kriel Dirn\|Kriel Dirn]], they ventured out together on their adventure. 
+Once in the [[Fanewick Cities & Towns/Stolen Fen\|Stolen Fen]], she encountered [[PCs/Ashkansi\|Ashkansi]], a rogue that was sent to end her life. Through some persuasive conversation and a chunk of gold, Ash agreed to spare her. Reluctantly, they stayed together in the Stolen Fen for the time being. When they both received a letter from [[Notable Figures/Haven NPCs/Kriel Dirn\|Kriel Dirn]], they ventured out together on their adventure. 
 
 Through her travels, Koraxys battles with an internal struggle of who she is and the powers she holds. It is up to her to either grow her confidence and skills to learn who she can be or cower amidst the unknown.

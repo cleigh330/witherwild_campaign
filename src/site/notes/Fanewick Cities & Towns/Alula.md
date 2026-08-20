@@ -3,7 +3,7 @@
 ---
 
 
-Alula is a treetop village in Fanewick. This is the base of [[_Assets/Cirelle\|Cirelle]], also known as the Fanewraith, who [[Kriel Dirn\|Kriel Dirn]] sent the adventuring party was sent out to find. The treetop village is home to a large number of druids, rangers, and rogues, and the ancestries are largely elf, human, clank, faerie, fungril, and simiah. 
+Alula is a treetop village in Fanewick. This is the base of [[_Assets/Cirelle\|Cirelle]], also known as the Fanewraith, who [[Notable Figures/Haven NPCs/Kriel Dirn\|Kriel Dirn]] sent the adventuring party was sent out to find. The treetop village is home to a large number of druids, rangers, and rogues, and the ancestries are largely elf, human, clank, faerie, fungril, and simiah. 
 
 ## Layout
 The treetop village is situated in a crescent shape, and in the center is a grassy opening. Hanging above this opening held aloft by many vines is a lantern lamplight. To most, the Lamplight gives off a pale blue glow to the surrounding treetops, but to those with an ancestry intrinsically tied to nature, such as fungril or simiah, they see iridescent glowing waves emanating from the lamplight. Thanks to this strange device, Alula is untouched by the Witherwild. Residents are unsure how this strange magic works, but Cirelle did tell the group that the lantern was given to them by a Ribbet that was passing through the town. When approaching Alula, [[PCs/Koraxys\|Koraxys]] and [[PCs/Caelum\|Caelum]] both saw the iridescent glow from it rippling out through the trees.
