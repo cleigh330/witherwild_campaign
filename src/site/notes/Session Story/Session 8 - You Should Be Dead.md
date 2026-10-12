@@ -3,7 +3,7 @@
 ---
 
 
-[[_Assets/Cirelle\|Cirelle]] in her panther form toppled on top of Sister Verona and out of sight through the overgrown Witherwild forest. The group regarded one another uneasily before deciding to follow the Fanewraith into trees. They followed blood splatters through the brush until they found a wounded panther on the ground. [[PCs/Orielle\|Orielle]] kept a perimeter while [[PCs/Caelum\|Caelum]] healed the panther, and once the wounds closed, Cirelle turned back to her human form and thanked Caelum.
+[[Notable Figures/Fanewick NPCs/Cirelle\|Cirelle]] in her panther form toppled on top of Sister Verona and out of sight through the overgrown Witherwild forest. The group regarded one another uneasily before deciding to follow the Fanewraith into trees. They followed blood splatters through the brush until they found a wounded panther on the ground. [[PCs/Orielle\|Orielle]] kept a perimeter while [[PCs/Caelum\|Caelum]] healed the panther, and once the wounds closed, Cirelle turned back to her human form and thanked Caelum.
 
 During this time, [[PCs/Ashkansi\|Ashkansi]] and [[PCs/Koraxys\|Koraxys]] continued to trail the blood to find Sister Verona. They realized the blood was bringing them back toward the cult, and, while still keeping some distance, they could see a crowd surrounding what they presumed to be Sister Verona. After some debating, they tried to send in Koraxys’s ghostly servant to finish off Sister Verona, but the plan went awry. The cult was onto some oddities happening in the forest and began to search, so Ash and Koraxys left and headed back to Cirelle.
 

@@ -68,7 +68,7 @@ Her eyes narrowed a touch. “You haven’t seen it out there. You’re all shel
 
 “Not what I meant. Haven tore into your bones and kicked that girl from the grove out. Your own Serpent’s Sickness runs deep.”
 
-Cirelle’s jaw tensed. “That’s not true. I tried desperately to get to the grove — any of the groves out there — but there wasn’t enough time. This isn’t about me. While you may not see it, the danger out there is brutal and real.”
+Cirelle’s jaw tensed. “That’s not true. I tried desperately to get to the grove — any of the groves out there — but there wasn’t enough time.” She shook her head, “This isn’t about me. While you may not see it, the danger out there is brutal and real.”
 
 “I don’t see it? You think when our trade slowed and scouts didn’t return that we felt nothing?” He argued.
 
