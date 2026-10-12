@@ -4,7 +4,7 @@
 
 
 
-[[PCs/Orielle\|Orielle]] and [[PCs/Caelum\|Caelum]] made their way to [[Aradon\|Aradon]]’s house to meet up with [[PCs/Koraxys\|Koraxys]] and [[PCs/Ashkansi\|Ashkansi]]. Inside the tossed house, Koraxys found two letters and read them aloud to the group.
+[[PCs/Orielle\|Orielle]] and [[PCs/Caelum\|Caelum]] made their way to [[Notable Figures/Fanewick NPCs/Aradon\|Aradon]]’s house to meet up with [[PCs/Koraxys\|Koraxys]] and [[PCs/Ashkansi\|Ashkansi]]. Inside the tossed house, Koraxys found two letters and read them aloud to the group.
 
 ---
 
